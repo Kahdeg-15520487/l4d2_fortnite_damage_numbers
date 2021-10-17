@@ -1,0 +1,1 @@
+idk how to do fastdl so each player need to instal addon fortnite_dmg_number.vpk
